@@ -1,0 +1,1 @@
+Corn and Cheese Maggi is perfect for those who are not fond of any spicy grub. All you need for it is: a small cup of boiled corn, cheese and blanched greens. Cook a soupy Maggi and top it with boiled corn, blanched greens and grated cheese. You can garnish the bowl with a hint of black pepper and salt.
